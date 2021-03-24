@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tlp13
-- 👀 I’m interested in Math, Code, Data & Deep Learning
+- 👀 I’m interested in Math, Code, Data
 - 🌱 I’m currently learning Computer Science at Ho Chi Minh University of Science - Auckland University of Technology
 - 💞️ I will make this year become awesome!
 - 📫 Reach me at 2059025@itec.hcmus.edu.vn
