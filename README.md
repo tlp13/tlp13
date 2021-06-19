@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @tlp13
-- 👀 I’m interested in Math, Code, Data
-- 🌱 I’m currently learning Computer Science at Ho Chi Minh University of Science - Auckland University of Technology
-- 💞️ I will make this year become awesome!
-- 📫 Reach me at 2059025@itec.hcmus.edu.vn
+Love Japanese/ Chinese/ Korean/ Vietnamese pop/ rap music, Finnish/ Swedish/ USUK metal 😊
+Love swimming, jogging, singing, piano & kalimba 😅
+Love food , sometimes lick book too 🤣
+.... generally, a typical introverted Aquarian 😶
+
 
 <!---
 tlp13/tlp13 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
