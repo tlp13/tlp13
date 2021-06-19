@@ -1,7 +1,7 @@
-Love Japanese/ Chinese/ Korean/ Vietnamese pop/ rap music, Finnish/ Swedish/ USUK metal 😊
-Love swimming, jogging, singing, piano & kalimba 😅
-Love food , sometimes lick book too 🤣
-.... generally, a typical introverted Aquarian 😶
+Love Japanese/ Chinese/ Korean/ Vietnamese pop/ rap music, Finnish/ Swedish/ USUK metal 😊 
+Love swimming, jogging, singing, piano & kalimba 😅 
+Love food , sometimes lick book too 🤣 
+.... generally, a typical introverted Aquarian 😶 
 
 
 <!---
